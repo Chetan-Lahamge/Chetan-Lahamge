@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **chetan.lahamge345@gmail.com**
 
-- 📄 Know about my experiences [https://shorturl.at/LPSHH](https://shorturl.at/LPSHH)
+- 📄 Know about my experiences [My Resume](https://tinyurl.com/chetan-lahamge-resume)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
